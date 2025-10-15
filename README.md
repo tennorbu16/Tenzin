@@ -1,1 +1,1 @@
-Tashi Deleck,Happy Losar to all.
+Tashi Deleck.
